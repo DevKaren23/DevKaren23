@@ -1,4 +1,4 @@
-# 💻 Karen Heloizia
+# 💁🏼‍♀️💻 Karen Heloizia
 
 **Programadora Python**
 
